@@ -9,7 +9,7 @@ climate resources
 - ice ages
 
 ## videos
-
+https://paulmerrell.org/astronomy/  
 
 How Ice Ages Happen: The Milankovitch Cycles  
 https://youtu.be/iA788usYNWA?si=V38_H1-0vShBJv2A
